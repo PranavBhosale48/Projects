@@ -1,2 +1,2 @@
-# Projects
-Academic Projects 
+# Research Apprenticeship
+
